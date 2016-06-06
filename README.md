@@ -1,2 +1,4 @@
-# localsonly
-0tter $quad style sendoff to the summer o' '16!
+#[L0CAL$ `O`|`N`|`L`|`Y`](http://localsonly.neocities.org/)
+
+Prepare for the fire!!!
+PARTY ~ PARTY ~ PARTY
